@@ -10,4 +10,4 @@
 
 这些平台专注于免费羞羞视频网站资源，集合了国产及麻豆精彩内容，类型丰富，更新迅速。视频页面包含影片时长、清晰度、演员等详细资料，支持高清播放，智能根据用户网络环境切换画质，确保流畅观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/chieu20250710/chieu5 ）</span>
